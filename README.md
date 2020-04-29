@@ -1,2 +1,0 @@
-# chriscarley.github.io
- chriscarley
